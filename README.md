@@ -1,3 +1,2 @@
-EHEM ÖLÜYOM GLB d:
-
-Uptime bot+
+Black Code Tarafından Yapılmıştır
+Çalınması Halinde Yasal İşlemler başlatılacaktır.
